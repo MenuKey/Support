@@ -10,10 +10,8 @@ If you need help with the app, have questions, or want to report an issue, we're
 
 You can reach our support team via:
 
-- **Email**: support@menukey.com  
-- **WhatsApp**: https://wa.me/923001234567  
-- **Facebook**: https://facebook.com/menukeyapp  
-- **Instagram**: https://instagram.com/menukeyapp  
+- **Email**: info@menukey.pk 
+- **WhatsApp**: https://wa.me/923211290950 
 
 ---
 
